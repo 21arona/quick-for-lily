@@ -1,1 +1,1 @@
-# quick-for-lily
+# it's for fun
